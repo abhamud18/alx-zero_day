@@ -1,1 +1,1 @@
-Waa aniga abdela
+Waan badalay
